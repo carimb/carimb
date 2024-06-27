@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning nothing, but I'm searching where I can begin
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can find me here, just send me a message
-- 😄 Pronouns: he/his
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: im a mechanical engineer
 
 <!---
